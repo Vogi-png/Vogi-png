@@ -2,7 +2,7 @@
 ‎‧₊˚✧ Seja bem vindo ao meu perfil! ✧˚₊‧
 
 </div>
-<img align="right" alt="TV2" height="200" width="200" src="https://cdn.discordapp.com/attachments/377860127660703745/1257843313252241460/TV_1.gif?ex=6685e15f&is=66848fdf&hm=4f9d26ed18e642a2b1c924003ae4a77749296f3ec3ae3231913a2ff7e7437daa&">
+<img align="right" alt="TV2" height="200" width="200" src="https://discordapp.com/channels/377860126247485471/377860127660703745/1257843313550168105">
 
 ### ☆ Estudando:
 <div style="display: inline_block"><br>
