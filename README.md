@@ -2,7 +2,7 @@
 ‎‧₊˚✧ *Seja bem vindo ao meu perfil!* ✧˚₊‧
 
 </div>
-<img align="right" alt="TV2" height="200" width="200" src="https://i.pinimg.com/originals/fc/5b/c2/fc5bc241bb3a4133d5706a4b116ec115.gif"><br><br>
+<img align="right" alt="TV2" height="200" width="200" src="https://i.pinimg.com/originals/fc/5b/c2/fc5bc241bb3a4133d5706a4b116ec115.gif"><br><br><br><br>
 
 
 ### ☆ Estudando:
